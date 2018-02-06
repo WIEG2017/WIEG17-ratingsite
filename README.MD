@@ -1,1 +1,1 @@
-(viktorlyresten.wieg17.se)
+http://viktorlyresten.wieg17.se/
